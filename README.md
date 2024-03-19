@@ -1,4 +1,4 @@
-#### Hey 👋
+#### Hey there ! 👋
 
 My name is Julie, I'm working on Data Analysis.
 
