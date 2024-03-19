@@ -6,3 +6,5 @@ My name is Julie, I'm working on Data Analysis.
 
 💌 How to reach me ?
 You can contact by email (in my bio!) or drop me a message on my Linkedin.
+
+🚂 Wagon Alumni - Batch #1529
